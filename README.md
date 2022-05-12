@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @abhiashfaq
 - 👀 I’m interested in traveling
-- 🌱 I’m currently learning diploma
+- 🌱 I’m currently learning diploma in electronics engineering
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me 
 
